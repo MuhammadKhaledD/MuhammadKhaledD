@@ -1,6 +1,6 @@
 👋 Hi, I’m Muhammad Khaled
 
-👀 I’m interested in...video games, history and music
+👀 I’m interested in...videoGames snd History 
 
 🌱 I’m currently learning...Computer engineering @Cairo_university
 
